@@ -11,7 +11,7 @@
 
 📬 I'm also open to exciting android opportunities, feel free to check out my [LinkedIn](https://www.linkedin.com/in/noelnwaelugo/)
 
-Cioa!
+Ciao!
 
 <img src ="https://github-readme-stats.vercel.app/api?username=Noel-elon&&show_icons=true&title_color=ffffff&icon_color=bb2acf&text_color=daf7dc&bg_color=151515">
 
