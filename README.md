@@ -7,7 +7,7 @@
 
 🎧 I love music (a lot.. a whole lot)
 
-🥊 Hit me up with your cool playlists on [Twitter](https://twitter.com/Noel_elonn)
+🥊 Hit me up with your cool playlists on [Twitter](https://twitter.com/heyonoel)
 
 📬 I'm also open to exciting android opportunities, feel free to check out my [LinkedIn](https://www.linkedin.com/in/noelnwaelugo/)
 
